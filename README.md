@@ -1,2 +1,0 @@
-# learning
-just pisssing around
